@@ -1,4 +1,4 @@
-# 
+# Enhance XMind for Windows with smart XMind for Windows Workflow | notes-integration + cloud-sync, the #1 workflow. Includes notes-integration and cloud-sync for a smoother and
 
 
 
